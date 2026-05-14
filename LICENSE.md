@@ -1,4 +1,4 @@
-#  
+#  advanced Script for adopt me is the best adopt me Script, featuring auto-sell and fly. Safe and powerful for all your needs.
 
 
 
